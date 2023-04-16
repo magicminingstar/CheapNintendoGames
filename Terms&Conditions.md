@@ -1,4 +1,4 @@
-# Terms & Conditions
+# Terms and conditions
 
 1. Refunds are only accepted in the first 12 hours of a rental
 2. There is no limit for rental
