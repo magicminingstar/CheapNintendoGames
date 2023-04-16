@@ -1,7 +1,9 @@
 # Switch games rental from magic mining star  
 
 ## Have fun without thinking of costs 
-
+Here are a selection six of games that you can choose to rent at very cheap prices!
+For the moment we have only six but we will soon have more options.
+Enjoy!
 ## Available games so far
  * [Crash Bandicoot](Crash_Bandicoot.md)
  * [The Legend Of Zelda : Breath of the Wild + Extension](Zelda.md)
