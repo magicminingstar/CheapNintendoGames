@@ -1,4 +1,4 @@
-# Cheap Nintendo Switch games for rental here !!!
+# Cheap Nintendo Switch games for rental here
 
 ## Have fun without thinking of costs 
 Here are a selection six of games that you can choose to rent at very cheap prices!
