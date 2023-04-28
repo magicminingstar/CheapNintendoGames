@@ -12,5 +12,5 @@ Here are a selection six of games that you can choose to rent at very cheap pric
  * [Hyrule Warriors : Age of Calamity](HyruleWarriors.md)
  
 ## Upcoming possible games
-* [Zelda : Tears of the Kingdom](Zelda2.md) Important notice this might have early access
-do not miss this opportunity!!!
+* [Zelda : Tears of the Kingdom](Zelda2.md) Important notice : this might have early access
+do not miss this opportunity !!
