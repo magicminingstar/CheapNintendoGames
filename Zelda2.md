@@ -6,7 +6,7 @@ especially knowing that the cost of living has gone up!
 
 Some of you might know it and it is not 
 cheap: It’s about £60. You might be thinking that is not for you, but no need to worry.
-You can have the exact same (and more) of this action-packed game for far less pennies! 
+You can have the exact same of this action-packed game for far less pennies! 
 
 How? By renting this game very cheap rather than buying it at high prices.
 To make this gaming experience even better we might be able to have early access for this game or
