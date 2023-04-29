@@ -14,4 +14,4 @@ play it later on July
 
 You can play all of this for the bargain price of £42.75 every two months or if you fancy a shorter period of time you can have it £26.50 every month do not miss this opportunity to have a thrilling time!
 
-Please take in consideration that this is not available now 
+Available now !!! Click [here](Zelda2info.md) 
