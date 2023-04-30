@@ -11,5 +11,3 @@ Here are a selection six of games that you can choose to rent at very cheap pric
  * [Pokemon Scarlet](PokemonScarlet.md)
  * [Hyrule Warriors : Age of Calamity](HyruleWarriors.md)
  * [Zelda : Tears of the Kingdom](Zelda2.md) (Early Access Now !!!) Click [here](Zelda2info.md) for more information
-## Upcoming possible games
-* None
