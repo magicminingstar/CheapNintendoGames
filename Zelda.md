@@ -1,6 +1,6 @@
 
 
-The Legend of Zelda : Breath of the Wild + Extension
+# The Legend of Zelda : Breath of the Wild + Extension
 
 Hello to all RPG gamers! This is your chance to play one the best RPG games (with it’s extension) of all time without having to pay too much, 
 especially knowing that the cost of living has gone up!
@@ -20,7 +20,7 @@ You can play all of this for the bargain price of £34.75 every two months or if
 | One day                           | £1.50           |
 | One week (7 days)                 | £8.00           |
 | Two weeks (14 days)               | £14.50          |
-| One month (30 days)               | £22.00          | 
+| One month (30 days)               | £22.00          |
 | One month and a week (37 days)    | £24.50          |
 | One Month and two weeks (42 days) | £30.00          |
 | Two months (60 days)              | £36.75          |
