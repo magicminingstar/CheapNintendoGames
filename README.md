@@ -10,7 +10,6 @@ Here are a selection six of games that you can choose to rent at very cheap pric
  * [Pokemon let’s go Eevee](PokemonEevee.md)
  * [Pokemon Scarlet](PokemonScarlet.md)
  * [Hyrule Warriors : Age of Calamity](HyruleWarriors.md)
- 
+ * [Zelda : Tears of the Kingdom](Zelda2.md) (Early Access Now !!!) click
 ## Upcoming possible games
-* [Zelda : Tears of the Kingdom](Zelda2.md) Important notice : this might have early access,
-do not miss this opportunity !!
+* None
