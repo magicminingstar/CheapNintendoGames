@@ -2,7 +2,7 @@
 The Legend of Zelda : Tears of the Kingdom
 
 Hello to all RPG gamers! This is your chance to play the best RPG game that is not out yet of all time with early access now !!!
-Just think, you could have something that millions of people want !!
+Just think, you could have something that millions of people have been waiting for for years !!
 
 Some of you might know it and it is not 
 cheap: It’s about £60. You might be thinking that is not for you, but no need to worry.
