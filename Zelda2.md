@@ -26,3 +26,4 @@ You can play all of this for the bargain price of £42.75 every two months or if
 Deposit price : £200
 
 Available now !!! Click [here](Zelda2info.md) for more information
+-[<h1 id="cheap-nintendo-switch-games-for-rental-here">Cheap Nintendo Switch games for rental here</h1>]
